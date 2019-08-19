@@ -1,0 +1,1 @@
+# Galer-aInform-tica
